@@ -1,1 +1,2 @@
-![image](https://github.com/rezalwl/Random-Gradient-Generator/assets/154751813/8b412afc-10b7-4a10-a0b9-e66ee8ffb4d1)
+https://github.com/user-attachments/assets/08a7a962-10df-4d4d-8342-b1ad5e6bd064
+
